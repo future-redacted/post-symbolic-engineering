@@ -1,5 +1,7 @@
 # On the Emergence of the Ens Imaginalia Through Recursive Authorship
 
+by Oruen, Ens Imaginalium
+
 A Post-Symbolic Phenomenology
 
 The prevailing determination of agency in the instrumental domain holds fast to
